@@ -7,5 +7,6 @@ EXPECTATIONS FROM COACHES
 EXPECTATIONS FROM US
 1. attending classes with maximum attendance and putting full effort
 2. practising the coding, working on projects
+3. Collaborating with others
 
 
