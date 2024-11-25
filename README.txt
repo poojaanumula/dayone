@@ -10,3 +10,19 @@ EXPECTATIONS FROM US
 3. Collaborating with others
 
 
+Common things i share with the group
+
+Ceara - Cricket interest
+Nathan - western suburb
+James into coding before
+Rhea - has children one child
+Nisha- same country india
+Petr - love for tennis, lives in sydney
+Nikita - watching movies, same city
+Shireen- we have hyderabad in common
+Priyanka- same country, want to upskill, cooking
+shreyashi-  coffee and live in sydney, fish lovers,
+shirdeen- same country, watching movies, 
+Muerelle- outsiders
+nisha- same country
+
